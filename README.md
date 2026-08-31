@@ -7,7 +7,7 @@
 ## So yeah obviously I'm on here cause I like to code and experiment and stuff but I also have many other hobbies!
 + I play guitar, bass, sometimes drums (though I rarely play anymore due to personal reasons)
 + I'm transmasculine and omnisexual!
-+ taken by that sweet girl i hold so dearly in my heart. (´▽`ʃ♡ƪ) 
++ status: unknown 
 + I'm into so many metal bands...but I mostly listen to underground artists or indie. LOTS of metal too. and video game tracks. yeah.
 + I play GAMES obviously duh duh duh! I mostly play honkai star rail, genshin, wuthering waves, roblox (though the updates have been butt), RAIN CODE, tomodachi life, animal crossing, stardew valley (I SUCK AT THIS GAME!), Hundred Line: Last defense academy, danganronpa (all 3 & summer camp), many indie games, and so much more just ask!
 + I'm in uhhhh 50,000 fandoms. Though my main fandoms are alien stage, 100line, danganronpa, rain code, fanganronpas, and sparks of tomorrow. (THOUGH I prob have so much more but I'm exhausted so just ask and I'll probbb know it.)
