@@ -1,19 +1,19 @@
-# YOOOOO the names Kakeru <sub>or just call me carved</sub> and I fw coding!
-## I go by any pronouns <sub>but masc is my prefffff</sub> 
-### im 17...ye.
+# YOOOOO the names Kakeru <sub>or just call me carved</sub>
+## he/him/they (he is preferred)</sub> 
+### minor!
 
 
 # ABOUT ME:
 ## So yeah obviously I'm on here cause I like to code and experiment and stuff but I also have many other hobbies!
 + I play guitar, bass, sometimes drums (though I rarely play anymore due to personal reasons)
 + I'm transmasculine and omnisexual!
-+ status: unknown 
++ status: taken<3
 + I'm into so many metal bands...but I mostly listen to underground artists or indie. LOTS of metal too. and video game tracks. yeah.
 + I play GAMES obviously duh duh duh! I mostly play honkai star rail, genshin, wuthering waves, roblox (though the updates have been butt), RAIN CODE, tomodachi life, animal crossing, stardew valley (I SUCK AT THIS GAME!), Hundred Line: Last defense academy, danganronpa (all 3 & summer camp), many indie games, and so much more just ask!
 + I'm in uhhhh 50,000 fandoms. Though my main fandoms are alien stage, 100line, danganronpa, rain code, fanganronpas, and sparks of tomorrow. (THOUGH I prob have so much more but I'm exhausted so just ask and I'll probbb know it.)
 + I like making scrap books. I'm planning to make a little business (that's a lie I just plan to sell them on etsy or something), about selling custom scrapbooks. I work very hard and spend a lot too.
 + TO BE CONTINUED!
-+ <sub>real quick most of my socials aren't avaliable right now so when they're back up I plan to put them on here but for now you can just shoot me an email on crazymoss81@gmail.com (may change name but will be same email.)</sub>
++ <sub>real quick most my socials dont work, but i have a discord (@/theairisothinhere.) and my gmail (crazymoss81@gmail.com)</sub>
 
 # PROJECTS:
 + So I'm currently working on a visual novel for now, I'll release info little by little with progress and what the story will be about (might release on itch.io)
